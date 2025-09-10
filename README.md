@@ -1,0 +1,1 @@
+# serendipityoffer.shop
